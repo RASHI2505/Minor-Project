@@ -1,1 +1,1 @@
-# Minor-Project
+# Minor-Project-VII-Sem
